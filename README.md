@@ -1,7 +1,7 @@
 *Hi, I'm @Mohsinsadiq*
 
 - Cybersecurity enthusiast
-- Computer Science student at Uri Degree College
+- Computer Science student...
 - cybersecurity research...
 - Let's connect: @mohsin__sadiq_ (Instagram)
 - Passionate about bug hunting & ethical hacking!
